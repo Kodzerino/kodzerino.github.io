@@ -43,6 +43,12 @@ This created a feeling of being distant but I still somehow managed to get throu
 
 **But, I was beginning to finally reach my limit, the lies I tell online are finally bringing its consequences.**
 
+# CONSEQUENCE
+
+I cherish every single friend I've made online. I care very deeply about everyone. But, I've always felt sad knowing that I am not 100% honest. Many of you have been fully honest about yourselves in front of me, and I've never been able to reciprocate in the same way. It makes me feel awful and think that I might not truly be your friend.
+
+**I began questioning about my true self and the validity of my friendships.**
+
 # CONTEMPLATION
 
 Over the course of many years, I've made a lot of good friends and had great experiences. I laughed, I cried, I learned and I truly lived. Everyone who is probably reading this is someone I truly admire and respect. And... It's because of that feeling, that I felt afraid. I felt afraid that if I told the truth now, it would be the end of our friendship and I would lose everything. Everyone would lose all respect for me and everything will be over.  
