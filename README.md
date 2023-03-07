@@ -51,7 +51,7 @@ I cherish every single friend I've made online. I care very deeply about everyon
 
 # CONTEMPLATION
 
-Over the course of many years, I've made a lot of good friends and had great experiences. I laughed, I cried, I learned and I truly lived. Everyone who is probably reading this is someone I truly admire and respect. And... It's because of that feeling, that I felt afraid. I felt afraid that if I told the truth now, it would be the end of our friendship and I would lose everything. Everyone would lose all respect for me and everything will be over.  
+Over the course of many years, I've made a lot of good friends and had great experiences. I laughed, I cried, I learned and I felt fulfilled. Everyone who is probably reading this is someone I truly admire and respect. And... It's because of that feeling, that I felt afraid. I felt afraid that if I told the truth now, it would be the end of our friendship and I would lose everything. Everyone would lose all respect for me and everything will be over.  
 
 **The fear of loss was too overbearing, but I knew that I would have to face it one day because this cannot go on forever.**
 
